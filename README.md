@@ -6,5 +6,5 @@ A little more persistence, a little more effort, and what seemed hopeless failur
 "If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much." - Jim Rohn
 Vietnam.
 Cười nhiều lên nha !
-HPNY.
+HPNY..
 Good Morning. Start this day with a smile!.
