@@ -7,5 +7,5 @@ A little more persistence, a little more effort, and what seemed hopeless failur
 Vietnam.
 Cười nhiều lên nha !
 HPNY.
-Good Morning. Start this day with a smile!..
+Good Morning. Start this day with a smile!.
 .
